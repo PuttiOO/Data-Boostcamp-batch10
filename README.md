@@ -10,6 +10,7 @@ My data science and analytics projects
 
 ## Contact Me
 Reach out to me at puttipongmatee.wong@gmail.com
+
 Instagram: Puttioo
 
 ## Image
